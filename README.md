@@ -1,0 +1,2 @@
+# sts_rega
+SUMATIF TENGAH SEMESTER
